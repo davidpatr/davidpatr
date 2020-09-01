@@ -1,4 +1,4 @@
-### Hi there, I'm davidpatr  [davidpatr] 👋
+### Hi there, I'm david  [davidpatr] 👋
 
 
 ## I'm a Student and Developer!
